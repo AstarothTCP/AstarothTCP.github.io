@@ -1,3 +1,1 @@
-# AstarothTCP.github.io
-
-Use php css 
+VStress.io Leaked by BLIZZARD-STRESSER.WTF
