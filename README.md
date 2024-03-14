@@ -1,1 +1,0 @@
-VStress.io Leaked by BLIZZARD-STRESSER.WTF
